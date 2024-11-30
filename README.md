@@ -103,7 +103,7 @@
 <p>Use Coupon Code <span style="background-color: #ffff00;">“<a href="https://7review-oto.us/Dynova-AI-Coupon" target="_blank" rel="nofollow noopener noreferrer"><strong>DYNOVAVIP</strong></a>“</span> to Get $3 Off Instantly.</p>
 <p><a href="https://7review-oto.us/Dynova-AI-Coupon" target="_blank" rel="nofollow noopener noreferrer"><img class="aligncenter size-full wp-image-26" src="https://4u-review.com/wp-content/uploads/2021/07/Coupon-8.png" sizes="auto, (max-width: 313px) 100vw, 313px" srcset="https://4u-review.com/wp-content/uploads/2021/07/Coupon-8.png 313w, https://4u-review.com/wp-content/uploads/2021/07/Coupon-8-300x154.png 300w" alt="" width="313" height="161" /></a></p>
 <h3><span style="color: #ff6600;"><strong>OTO 1: Dynova AI Unlimited</strong></span></h3>
-<p><strong><img class="emoji" role="img" draggable="false" src="https://s.w.org/images/core/emoji/15.0.3/svg/2705.svg" alt="✅" /> Dynova AI Unlimited <span style="color: #ff0000;">[$10 Discount]</span></strong><br />
+<p><strong> Dynova AI Unlimited <span style="color: #ff0000;">[$10 Discount]</span></strong><br />
 <a href="https://7review-oto.us/Dynova-AI-Coupon" target="_blank" rel="nofollow noopener noreferrer"><strong>https://dynovaai.com/unlimited/</strong></a></p>
 <p>Unlock Dynova AI Unlimited License… And Get 64x More Campaigns, Traffic, And Sales… With ZERO Extra Work… With Just A Click Use The Same Account… But Make $11,325.78 Extra Monthly!</p>
 <p>No Need To Do Any Extra Work, Or Learn Anything New…</p>
@@ -119,7 +119,7 @@
 	<li class="d6 d7 d8 d9 d10 d42 d260 m9 m10 m11 m12 m13 m14 m43 m247"><span class=" d12 d14 d43 m11 m16 m19 m24">No risk – You’re covered with 30 days money back guarantee</span></li>
 </ul>
 <h3><span style="color: #ff6600;"><strong>OTO 2: Dynova AI DFY</strong></span></h3>
-<p><strong><img class="emoji" role="img" draggable="false" src="https://s.w.org/images/core/emoji/15.0.3/svg/2705.svg" alt="✅" /> Dynova AI DFY <span style="color: #ff0000;">[$30 Discount]</span></strong><br />
+<p><strong> Dynova AI DFY <span style="color: #ff0000;">[$30 Discount]</span></strong><br />
 <a href="https://7review-oto.us/Dynova-AI-Coupon" target="_blank" rel="nofollow noopener noreferrer"><strong>https://dynovaai.com/dfy/</strong></a></p>
 <p>What If We Did All The Work For You… And Gave You 48 DFY Profitable Campaigns That Generate $2,000 Daily… Just By Copying And Pasting…With ZERO Extra Work…</p>
 <p>All Our DFY Members Are Making $2,000+ Per Day</p>
@@ -133,7 +133,7 @@
 	<li class="d7 d8 d9 d10 d11 d48 d287 d288 m9 m10 m11 m12 m13 m46 m274 m275"><span class=" d13 d15 d49 m11 m15 m17 m47">No risk – You’re covered with 30 days money back guarantee</span></li>
 </ul>
 <h3><span style="color: #ff6600;"><strong>OTO 3: Dynova AI Traffic</strong></span></h3>
-<p><strong><img class="emoji" role="img" draggable="false" src="https://s.w.org/images/core/emoji/15.0.3/svg/2705.svg" alt="✅" /> Dynova AI Traffic <span style="color: #ff0000;">[$20 Discount]</span></strong><br />
+<p><strong> Dynova AI Traffic <span style="color: #ff0000;">[$20 Discount]</span></strong><br />
 <a href="https://7review-oto.us/Dynova-AI-Coupon" target="_blank" rel="nofollow noopener noreferrer"><strong>https://dynovaai.com/traffic/</strong></a></p>
 <p>Want Us To Send You 1000-2000 Hits Of Targeted Buyer Traffic That Makes You An Extra $200-$300 Per Day?</p>
 <p>Effortlessly Add An Extra Stream Of Income!</p>
@@ -144,7 +144,7 @@
 	<li>We’re Making MILLIONS Of Dollars With This Targeted Traffic…</li>
 </ul>
 <h3><span style="color: #ff6600;"><strong>OTO 4: Dynova AI Agency</strong></span></h3>
-<p><strong><img class="emoji" role="img" draggable="false" src="https://s.w.org/images/core/emoji/15.0.3/svg/2705.svg" alt="✅" /> Dynova AI Agency  <span style="color: #ff0000;">[$80 Discount]</span></strong><br />
+<p><strong> Dynova AI Agency  <span style="color: #ff0000;">[$80 Discount]</span></strong><br />
 <a href="https://7review-oto.us/Dynova-AI-Coupon" target="_blank" rel="nofollow noopener noreferrer"><strong>https://dynovaai.com/agency/</strong></a></p>
 <p>IMPORTANT: Let Us Setup Your AI Agency For You… And Bank $18,496.10 Per Month.</p>
 <ul class="d61 m65">
@@ -154,7 +154,7 @@
 	<li class="d3 d4 d5 d6 d63 d130 d131 m5 m6 m7 m8 m9 m67 m133 m134"><span class=" d8 d13 d14 d31 d65 m11 m15 m16 m35 m69">Zero Extra Work Required From Your End… </span></li>
 </ul>
 <h3><span style="color: #ff6600;"><strong>OTO 5: Dynova AI Reseller</strong></span></h3>
-<p><strong><img class="emoji" role="img" draggable="false" src="https://s.w.org/images/core/emoji/15.0.3/svg/2705.svg" alt="✅" /> Dynova AI Reseller <span style="color: #ff0000;">[$100 Discount]</span></strong><br />
+<p><strong> Dynova AI Reseller <span style="color: #ff0000;">[$100 Discount]</span></strong><br />
 <a href="https://7review-oto.us/Dynova-AI-Coupon" target="_blank" rel="nofollow noopener noreferrer"><strong>https://dynovaai.com/reseller/</strong></a></p>
 <p>Want To Earn Up To $354.47 Per Click Without Using Dynova AI?</p>
 <p>Introducing… Dynova AI Reseller</p>
